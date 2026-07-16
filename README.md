@@ -1,0 +1,1 @@
+Hello everybody, if you find this, this is the source instructions for what the verity-ai by me sees in his instructions, if you want to request anything to be added to instructions you can comment or personally ask me. Im not going to private this as this is just the instructions.
